@@ -1,0 +1,1 @@
+# staticShop.github.io
